@@ -1,0 +1,2 @@
+# Cheats
+freeze your browser
